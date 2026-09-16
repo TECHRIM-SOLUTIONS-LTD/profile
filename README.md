@@ -15,7 +15,7 @@ We believe in creating <strong class="fst-italic">Simple</strong>,
 
 
 ## CONTACTS
-- PHONE: +254720404268
-- WHATSAPP: +254720404268
+- PHONE: +254142016569
+- WHATSAPP: +254142016569
 - EMAIL: info@techrimsolutions.com
 - LINKEDIN: https://www.linkedin.com/company/techrim-solutions-ltd/
